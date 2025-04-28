@@ -32,3 +32,11 @@ Genesis_AI_Awakening is open to potential partnerships, collaborations, or resea
 If you are interested in exploring opportunities for collaboration or applied research, please feel free to contact:
 
 hansolutong@naver.com
+
+---
+
+## Connect
+
+You can also find me on LinkedIn for further discussions and collaboration opportunities:
+
+[LinkedIn Profile](https://www.linkedin.com/in/%EC%A0%95%EA%B7%BC-%EA%B9%80-885085363)
